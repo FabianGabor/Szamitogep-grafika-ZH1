@@ -1,0 +1,1 @@
+Szamitogep-grafika-ZH1
